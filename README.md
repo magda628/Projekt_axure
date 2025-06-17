@@ -1,5 +1,5 @@
 ---
 
-Edytowane przez Adrian Witów 21319
+Edytowane przez Adrian Witów 21319 ☺️
 
 ---
